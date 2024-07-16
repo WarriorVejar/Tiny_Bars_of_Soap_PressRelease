@@ -4,7 +4,7 @@ Estimado Jonathan Richman,
 
 Espero que este mensaje le encuentre bien. Soy Oscar Ortega, un entusiasta del diseño y la música indie, y me dirijo a usted para presentarle una oportunidad emocionante de patrocinio.
 
-Nos complace anunciar el próximo lanzamiento del nuevo sencillo de _"A Tiempo"_, un talento emergente en el mundo del **POP Electrónico y Synthpop**. *Tiny Bars of Soap* ha demostrado una habilidad única para fusionar ritmos electrónicos con melodías pegajosas, creando una experiencia musical envolvente y cautivadora.
+Nos complace anunciar el próximo lanzamiento del nuevo sencillo de _"A Tiempo"_ [![Spotify](https://www.logo.wine/a/logo/Spotify/Spotify-Icon-Logo.wine.svg)](https://open.spotify.com/track/3Lo4W5pr3HlaOitlDbyqEW?si=50ebbf716954476a) , un talento emergente en el mundo del **POP Electrónico y Synthpop**. *Tiny Bars of Soap* ha demostrado una habilidad única para fusionar ritmos electrónicos con melodías pegajosas, creando una experiencia musical envolvente y cautivadora.
 
 **¿Por qué apoyar a Tiny Bars of Soap?**
 
