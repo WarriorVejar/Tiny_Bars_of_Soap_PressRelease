@@ -26,6 +26,8 @@ Agradecemos su atención y esperamos contar con su valioso apoyo.
 
 Saludos cordiales,
 
+🔊 Escúchalo ahora en todas las plataformas y deja que la música te lleve a otro nivel. No olvides seguir a [@tinybarsofsoap](https://www.instagram.com/tinybarsofsoap/) para más sorpresas y contenido exclusivo.
+Click -->
 <a href="https://open.spotify.com/track/3Lo4W5pr3HlaOitlDbyqEW?si=50ebbf716954476a">
   <img src="https://www.logo.wine/a/logo/Spotify/Spotify-Icon-Logo.wine.svg" alt="Spotify" width="50" height="50">
 </a>
