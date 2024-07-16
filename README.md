@@ -37,10 +37,6 @@ Tiny Bars of Soap,
 </a>
 No olvides seguir a [@tinybarsofsoap](https://www.instagram.com/tinybarsofsoap/) para más sorpresas y contenido exclusivo.
 
-
-Tiny Bars of Soap  
-Artista  
-tinybarsofsoap@contact.com
 ----
 ![Tiny Bars of Soap](https://tinybarsofsoap.com/wp-content/uploads/2021/12/TBOSD04-12s-600x360.jpg)
 
