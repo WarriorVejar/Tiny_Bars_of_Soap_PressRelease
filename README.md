@@ -29,7 +29,6 @@ Saludos cordiales,
 Tiny Bars of Soap  
 Artista  
 tinybarsofsoap@contact.com
-Oscar Ortega
 ----
-![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2021/12/TBOSD04-12s-600x360.jpg)
+![Tiny Bars of Soap](https://tinybarsofsoap.com/wp-content/uploads/2021/12/TBOSD04-12s-600x360.jpg)
 
