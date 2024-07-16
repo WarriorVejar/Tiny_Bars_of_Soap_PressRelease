@@ -31,4 +31,5 @@ Artista
 tinybarsofsoap@contact.com
 Oscar Ortega
 ----
-![TinyBarsofSoap] (https://tinybarsofsoap.com/wp-content/uploads/2021/12/TBOSD04-12s-600x360.jpg)
+![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2021/12/TBOSD04-12s-600x360.jpg)
+
